@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... ccnp
 - 💞️ I’m looking to collaborate on ... Networking Jobs
 - 📫 How to reach me ... Just ping me.
-- ⚡ Fun fact: ... Funs for the ass holes
+- ⚡ Fun fact: ... Funs for the weak
    
 
 <!---
